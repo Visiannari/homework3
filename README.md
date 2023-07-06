@@ -3,4 +3,4 @@
 ## второй заголовок
 еще немного текста 
 
-![Текст с описанием](https://koshka.top/8314-milogo-kotika-v-shapochke.html)
+![Текст с описанием](http://pikstok.ru/images/images/1532337293877.jpg)
